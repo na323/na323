@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @na323
-- 👀 I’m interested in **IT ans manufacture!<3**
+- 👀 I’m interested in **IT and manufacture!<3**
 - 🌱 I’m currently learning chinese:)
 - 💞️ I’m looking to collaborate on anything!!
 - 📫 How to reach me nadiardz0331@gmail.com
